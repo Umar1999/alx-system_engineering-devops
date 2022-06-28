@@ -1,1 +1,1 @@
-Being unique is better than being perfect
+What’s new
