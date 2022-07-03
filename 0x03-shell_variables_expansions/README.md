@@ -1,1 +1,1 @@
-aliass
+alias
